@@ -5,11 +5,11 @@
 
 🇫🇷・Webscord
 
-💻・We make websites for Discord servers or Personnal use
+💻・Nous créons des sites Web pour des serveurs Discord pour un usage personnel
 
-🌴・Portfolio, server website, compagny website, etc.
+🌴・Portfolio, site Web de serveur, site Web d'entreprise, etc
 
-🚥・Contact me on [Discord](https://discord.com/users/1182721111658602549)
+🚥・Contactez-nous sur [Discord](https://discord.com/users/1182721111658602549)
 
 ----
 
