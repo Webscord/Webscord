@@ -1,4 +1,4 @@
-![](![image](https://github.com/Webscord/Webscord/assets/97246974/bac5f541-0212-4743-bad4-b6f9b849b410)
+![](![image](https://share.creavite.co/665b994bb5b565ba12594094.gif)
 )
 
 ----
