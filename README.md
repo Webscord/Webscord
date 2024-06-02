@@ -5,7 +5,7 @@
 
 🇫🇷・Webscord
 
-💻・Nous créons des sites Web pour des serveurs Discord pour un usage personnel
+💻・Nous créons des sites Web pour des serveurs Discord ou pour un usage personnel
 
 🌴・Portfolio, site Web de serveur, site Web d'entreprise, etc
 
